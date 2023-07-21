@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **harshilchavada04@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1JF4t5L6834dB8ZyqU34gEEYQf-hY7ZNc/view?usp=sharing](https://drive.google.com/file/d/1JF4t5L6834dB8ZyqU34gEEYQf-hY7ZNc/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/13X3AEICiR6LLpPXmZ8RshJaTfmBvW8jC/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am funny**
 
